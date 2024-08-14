@@ -9,4 +9,4 @@ eduarda.trindade.silveira@escola.pr.gov.br
 
 @dudahrk._
 
-![](https://tenor.com/pt-BR/view/hi-gif-15713149880879377075)
+![](https://media1.tenor.com/m/w_ye4QI4IN4AAAAC/laughing-kitty-cat.gif)
